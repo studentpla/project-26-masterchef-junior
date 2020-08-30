@@ -1,0 +1,5 @@
+## how to make 
+
+#### cut potatoes in the shape of french fries  and then put water on gas stove and boil it then add the potatoes and then boil it half or a little bit that any one hold that it doesn't mash and then make a slurry of plainflour/maida , cornflour and water , add only 5 tablespoon of cornflour and plain flour 3 tablespoon and add water to make thin slurry and then coat the half boiled potatoes in this slurry and the coated potatoes and then make gravy, for this firstly add four -  five spoons of oil and then add onion, red capsicum,yellow capsicum,green capsicum and fry them for a while and then add ginger garlic paste, tomato sauce , chili sauce and you your favourite sweet and spicy sauces after adding sauces you can also add your favourite spices and then add water make a slurry of leftover cornflour and water that slurry will be thinner than the slurry we have made before and add this slurry to the gravy we are adding this slurry because this will make our  gravy thick and stir it for sometime till the gravy is thick .
+
+### and your chili potato is ready!!!
